@@ -10,4 +10,3 @@
 
 ![vicky_linkedin_cover](https://github.com/user-attachments/assets/ac2bb6ab-8753-42c2-9805-b7402fd31a56)
 
-
