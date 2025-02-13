@@ -1,4 +1,7 @@
+
 # Website_Design
+
+![mockuuups-free-macbook-pro-mockup-on-stone-pedestal](https://github.com/user-attachments/assets/a4772ed9-72d3-4220-9db2-044b2ea4a76c)
 
 ![web_page](https://github.com/user-attachments/assets/6b83560b-6df6-492a-818c-c82ed71bfbaf)
 
