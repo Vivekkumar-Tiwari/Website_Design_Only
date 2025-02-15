@@ -3,7 +3,6 @@
 
 ![web_page](https://github.com/user-attachments/assets/6b83560b-6df6-492a-818c-c82ed71bfbaf)
 
-
 ![Group 122](https://github.com/user-attachments/assets/ab768e05-3e3f-4c97-9111-60b727e876de)
 
 #Business Crad Design 
